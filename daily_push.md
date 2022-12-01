@@ -136,3 +136,5 @@ My cervical radiculopathy has taken me out since July 27th and it's been a horri
 11/24/2022 - none cause it was turkey break;
 11/25/2022 - 1;
 11/29/2022 - 7;
+11/30/2022 - 3;
+12/1/2022 - 3;
