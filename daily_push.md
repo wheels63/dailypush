@@ -147,4 +147,4 @@ My cervical radiculopathy has taken me out since July 27th and it's been a horri
 12/22/2022 - 1;
 
 1/3/2023 - 4;
-1/4/2023 - 2;
+1/4/2023 - 6;
